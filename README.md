@@ -1,1 +1,6 @@
 # Kobe-Bryant-Tribute-Page
+Kobe Bryant, the 18-time All-Star who won five NBA championships and became one of the greatest basketball players of his generation during a 20-year career with the Lakers. Bryant became one of the NBA's most popular players and the face of Lakers during his career. Winning a record four NBA All-Star game MVP awards, he was the overall league MVP in 2008 , a two time NBA scoring champion and 12 All-Defensive selections. 
+
+He teamed with Shaquille O'Neal in a combustible partnership to lead the Lakers to NBA titles in 2000, 2001 and 2002. He later team with Pau Gasol to win two more titles in 2009 and 2010. A 2-time Olympic gold medalist with the dominant US team, Bryant retired in 2016 after scoring 60 points in his final NBA game. In December 2017, The Lakers hung banners retiring his number 8 and 24 jerseys in the staple center rafters in an unprecedented double honor. 
+
+Friends and fellow athletes around the world paid tribute to Kobe Bryant, who lost his life in a helicopter crash in January 26, 2020. He was 41. Bryant's 13-year-old daughter Gianna and seven others also died in the crash.  This TRIBUTE PAGE created by me is a way of paying tribute to this legend.
